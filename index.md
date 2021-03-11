@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to lalaLand
 
-I'm glad you are here. I plan to talk about ...
+It's so good to have you here! I hope to embark on a journey to dicover the meaning of life. 
